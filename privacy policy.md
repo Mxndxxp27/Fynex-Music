@@ -1,9 +1,6 @@
 # Fynex Music Privacy Policy
 Privacy Policy – Fynex Music Bot
 
-**Effective Date:** October 27, 2026
-**Last Updated:** October 27, 2026
-
 ---
 
 # 1. Overview
